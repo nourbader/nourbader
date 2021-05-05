@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @nourbader
+- 👀 I’m interested in Graphic Design, Philosophy, and music.
+- 🌱 I’m currently learning Graphic Design
+- 💞️ I’m looking to collaborate on Design Projects, and learning programming.
+- 📫 How to reach me: Instagram @nour.b0 or by email: nerobadr@hotmail
+-    Gamer: CS:GO, League of Legends, Apex Legends.
